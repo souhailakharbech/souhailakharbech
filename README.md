@@ -3,6 +3,8 @@
 
 - 📫 How to reach me **souhaila.kharbech@esprit.tn**
 
+- 📄 Know about my experiences [https://drive.google.com/drive/my-drive?fbclid=IwAR2m7Dxbl9AU_iLSBdCHZUGxjIanP31p7bkXXgWxoEXanFv3JzYqAJ_KKHU](https://drive.google.com/drive/my-drive?fbclid=IwAR2m7Dxbl9AU_iLSBdCHZUGxjIanP31p7bkXXgWxoEXanFv3JzYqAJ_KKHU)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/souhaila kharbech" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="souhaila kharbech" height="30" width="40" /></a>
