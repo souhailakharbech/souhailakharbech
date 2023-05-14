@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm souhaila kharbech</h1>
+<h1 align="center">Hi 👋, I'm Souhaila Kharbech</h1>
 <h3 align="center">A passionate software engineering student</h3>
 
 - 📫 How to reach me **souhaila.kharbech@esprit.tn**
