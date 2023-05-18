@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **souhaila.kharbech@esprit.tn**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/my-drive?fbclid=IwAR2m7Dxbl9AU_iLSBdCHZUGxjIanP31p7bkXXgWxoEXanFv3JzYqAJ_KKHU](https://drive.google.com/drive/my-drive?fbclid=IwAR2m7Dxbl9AU_iLSBdCHZUGxjIanP31p7bkXXgWxoEXanFv3JzYqAJ_KKHU)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1GnktVY9TkRsaDl0yru7T-Ae-0cWZAgnR/view](https://drive.google.com/file/d/1GnktVY9TkRsaDl0yru7T-Ae-0cWZAgnR/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
