@@ -1,5 +1,6 @@
 <h1 align="center">Hi 👋, I'm souhaila kharbech</h1>
 <h3 align="center">A passionate software engineering student</h3>
+<img align="right" alt="Codage" width="400" src="https://media.tenor.com/S59bPkT0pqcAAAAC/programming.gif">
 
 - 📫 How to reach me **souhaila.kharbech@esprit.tn**
 
