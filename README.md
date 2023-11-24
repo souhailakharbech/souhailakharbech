@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **souhaila.kharbech@esprit.tn**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/drive/u/0/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nELkcYxnhuMF9r3yi4_JDqrGmq_1IX4u/view?usp=sharing](https://drive.google.com/file/d/1nELkcYxnhuMF9r3yi4_JDqrGmq_1IX4u/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
